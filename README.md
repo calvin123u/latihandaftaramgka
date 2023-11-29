@@ -8,3 +8,8 @@ gambar tugas
 hasil output
 
 ![h](https://github.com/calvin123u/latihandaftaramgka/assets/146921506/e11dff82-8334-42c1-bb9c-45574252ce4b)
+
+
+link youtube
+
+https://youtu.be/Dq8V-OEwk4U?si=1k3PFkp6VB5vC76k
